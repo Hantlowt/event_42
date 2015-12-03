@@ -1,1 +1,1 @@
-Auteurs : Hantlowt, neolectron, mouton
+Auteurs : Hantlowt, neolectron, mouton :+1: :camel: :octocat:
